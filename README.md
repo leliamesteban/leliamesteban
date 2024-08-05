@@ -11,11 +11,11 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/leliamesteban](https://github.com/leliamesteban)
 
-- 💬 Ask me about **chess, rock climbing, languages, coffee,...**
+- 💬 Ask me about **chess, rock climbing, languages, coffee, ...**
 
 - 📫 How to reach me **liamesteban@gmail.com**
 
-- 📄 Learn about my experiences [aiapply.co/r/66b1130a119ea](aiapply.co/r/66b1130a119ea)
+- 📄 Learn about my experiences [aiapply.co/r/66b1130a119ea](CV - Liam Esteban Prince)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
